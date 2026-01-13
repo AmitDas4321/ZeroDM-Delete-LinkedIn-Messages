@@ -118,5 +118,3 @@ For questions, concerns, or legal inquiries regarding these Terms of Use, please
 
 **Made with ❤️ by Amit Das**
 © 2025 Amit Das — All Rights Reserved
-
-Just tell me 👍
